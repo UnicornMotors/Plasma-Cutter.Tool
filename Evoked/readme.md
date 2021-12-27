@@ -1,3 +1,5 @@
+# PrimeWeld Cut50DP
+
 # Warfox Cut50DP
 Looks like a Great unit! Likely from the same factory as PrimeWeld. Has a stinger safety guard and workpiece spacer, which PrimeWeld doesn't.
 
