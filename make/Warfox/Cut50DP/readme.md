@@ -1,4 +1,6 @@
-Review: [Trying out the cheapest pilot arc plasma cutter from Amazon on rusty metal](https://youtu.be/GOLom8rODVQ)
+# Review:
+- [Trying out the cheapest pilot arc plasma cutter from Amazon on rusty metal](https://youtu.be/GOLom8rODVQ)
+- [Testing the $199 Cheap Plasma Cutter from Amazon!!!](https://youtu.be/CId8FIMmOYM)
 
 Market graph: https://www.amazon.com/dp/B08CRFDPHG
 
